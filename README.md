@@ -1,1 +1,0 @@
-# DaigoMakimoto.github.io
